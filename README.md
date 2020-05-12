@@ -1,2 +1,2 @@
 # Snoath
-Gameu
+Game na desu ne
